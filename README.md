@@ -51,7 +51,7 @@ These projects aim to redefine how information is **stored, transferred, and pro
 To request collaboration, investment, or licensing of either innovation, contact:
 
 **Zenith | Alejandro Efraín Kurday**  
-[zenith.innovation@protonmail.com] *(or your preferred email)*  
+[ale.efra.kur@gmail.com]
 Argentina
 
 ---
